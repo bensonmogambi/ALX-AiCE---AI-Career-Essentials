@@ -8,3 +8,5 @@ onto the next week
 
 
 *Week 1*
+going good
+but will not finsh in time
